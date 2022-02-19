@@ -3,6 +3,6 @@ Flash 500 BTC per day it is usable in 2 weeks time before it disappears from you
 # Contact Me
 https://t.me/YTBRIP
 # Prices
-$1500 - @sianexploit - @haram_core
-$150 - @YTBRIP - WITH BINANCE SERVER FILE
-$60 - @YTBRIP WITHOUT BINANCE SERVER FILE
+[01] $1500 - @sianexploit - @haram_core
+[02] $150 - @YTBRIP - WITH BINANCE SERVER FILE
+[03] $60 - @YTBRIP WITHOUT BINANCE SERVER FILE
